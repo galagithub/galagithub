@@ -1,4 +1,4 @@
-Don't you jus hate introdicing yourself?
+Don't you just hate introducing yourself?
 
 I found out the hard way that the biggest liars introduce themselfes very well, unfortunalty I don't have that talent.
 But I have other talents! You are welcome to discover some by browsing the thing I put in this repo.
